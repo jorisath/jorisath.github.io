@@ -16,5 +16,5 @@ _Political Research Quarterly, 78_(2), 481–494. [doi:10.1177/10659129241309092
 
 **Alberdingk Thijm, J.** (2024). Coalition Governance under Separation of Powers: Shadowing by Committee in Coalitional Presidentialism. _Legislative Studies Quarterly, 49_, 835-860. [doi:10.1111/lsq.12451](https://doi.org/10.1111/lsq.12451)
 
-Serra da Silva, S., Espírito Santo, A., & **Alberdingk Thijm, J.**. (2021). Ramondt-Hirschmann, Cornelia. In I. Baltazar, A. Cunha and I. Lousada (Eds.), *Dicionário das Mulheres e a Unidade da Europa* (pp. 265-69). Assembleia da República. Retrieved from: [www.almedina.net/dicion-rio-as-mulheres-e-a-unidade-europeia-1679577842.html](https://www.almedina.net/dicion-rio-as-mulheres-e-a-unidade-europeia-1679577842.html)
+Serra da Silva, S., Espírito Santo, A., & **Alberdingk Thijm, J.**. (2023). Ramondt-Hirschmann, Cornelia. In I. Baltazar, A. Cunha and I. Lousada (Eds.), *Dicionário das Mulheres e a Unidade da Europa* (pp. 265-69). Assembleia da República. Retrieved from: [www.almedina.net/dicion-rio-as-mulheres-e-a-unidade-europeia-1679577842.html](https://www.almedina.net/dicion-rio-as-mulheres-e-a-unidade-europeia-1679577842.html)
 
